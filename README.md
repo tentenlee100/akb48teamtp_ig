@@ -30,7 +30,7 @@ akb48teamtp_ig
 高云珏|jue_1020_akb48teamtp
 張法法|fafa_alpha_akb48teamtp
 董子瑄|annie_akb48teamtp
-賈宜蓁|rika_818.akb48teamtp_official
+賈宜蓁|rika_818.akb48teamtp
 劉曉晴|koharu_akb48teamtp
 蔡亞恩|chunana_akb48teamtp
 蔡伊柔|jou0715.akb48teamtp_official
