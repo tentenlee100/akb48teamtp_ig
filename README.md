@@ -5,6 +5,7 @@ akb48teamtp_ig
 
 名稱|新帳號|開啟
 ---|----|---
+正式成員|
 本田柚萱|h.yuzuka_akb48teamtp|[開啟](https://www.instagram.com/h.yuzuka_akb48teamtp/)
 冼迪琦|pockydic_akb48teamtp|[開啟](https://www.instagram.com/pockydic_akb48teamtp/)
 林倢|jie_214_akb48teamtp|[開啟](https://www.instagram.com/jie_214_akb48teamtp/)
@@ -17,6 +18,7 @@ akb48teamtp_ig
 劉語晴|yu7.714_akb48teamtp|[開啟](https://www.instagram.com/yu7.714_akb48teamtp/)
 劉潔明|\_\_aki_akb48teamtp|[開啟](https://www.instagram.com/h.yuzuka_akb48teamtp/)
 潘姿怡|mina0728_akb48teamtp|[開啟](https://www.instagram.com/__aki_akb48teamtp/)
+研究生|
 小山美玲|mirei.akb48teamtp|[開啟](https://www.instagram.com/mirei.akb48teamtp/)
 王逸嘉|cywang_akb48teamtp|[開啟](https://www.instagram.com/cywang_akb48teamtp/)
 李佳俐|chiali_akb48teamtp|[開啟](https://www.instagram.com/chiali_akb48teamtp/)
