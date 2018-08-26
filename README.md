@@ -36,7 +36,7 @@ akb48teamtp_ig
 劉曉晴|koharu_akb48teamtp|[開啟](https://www.instagram.com/koharu_akb48teamtp/)
 蔡亞恩|chunana_akb48teamtp|[開啟](https://www.instagram.com/chunana_akb48teamtp/)
 蔡伊柔|jou0715_akb48teamtp|[開啟](https://www.instagram.com/jou0715_akb48teamtp/)
-高硯晨|chenchen_akb48teamtpe|[開啟](https://www.instagram.com/chenchen_akb48teamtpe/)
+高硯晨|chenchen_akb48teamtp|[開啟](https://www.instagram.com/chenchen_akb48teamtp/)
 鄭妤葳|yu_wei_akb48teamtp|[開啟](https://www.instagram.com/yu_wei_akb48teamtp/)
 鄭佳郁|purin_akb48teamtp|[開啟](https://www.instagram.com/purin_akb48teamtp/)
 羅瑞婷|juiting_akb48teamtp|[開啟](https://www.instagram.com/juiting_akb48teamtp/)
